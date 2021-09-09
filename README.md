@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SlippyBananas
+- 👀 I’m interested in bulding my own website (which I am doing right now)
+- 🌱 I’m currently learning to build a website and to code for my website
+- 💞️ I’m looking for contributers so they can help me build my website for certain things
+- 📫 How to reach me reach me out by my discord SlippyBananas#7862
